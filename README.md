@@ -1,0 +1,2 @@
+# premium-gilt-wood-001-water-gilding-bole-technique-g
+Master water gilding without the trial-and-error chaos that wastes gold leaf and destroys your pieces. The bole layer makes or breaks your gilding—and most craftspeople are doing it wrong.  This Water Gilding Bole Technique Guide is a complete Notion template that walks you through every critical step of preparing, applying, and perfecting your bol
